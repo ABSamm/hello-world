@@ -7,4 +7,4 @@ I'm excited to dive into the world of project management and version control.
 
 
 I LOVE PIZZA
-I PROMISE I'M NOT A 🤡
+I PROMISE I'M NOT A 🐴
